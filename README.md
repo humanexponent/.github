@@ -1,1 +1,1 @@
-# .github
+This is a public repository of a company [Gyfted.me](https://www.gyfted.me) offering career advisory platform offering [free cv resume builder](https://www.gyfted.me/personality-cv) and [talent matching](https://www.gyfted.me/talent-matching) services.
