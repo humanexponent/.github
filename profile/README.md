@@ -25,7 +25,13 @@ For any queries, contact us [here](https://www.gyfted.me/contact).
 Connect with us on social media for updates and career tips:
 
 [LinkedIn](https://www.linkedin.com/company/gyftedme)
+
 [Facebook](https://www.facebook.com/Gyfted.me)
+
 [Twitter](https://twitter.com/Gyfted_me)
+
 [Instagram](https://www.instagram.com/gyfted.me/)
+
+
+
 [Gyfted.Me](https://www.gyfted.me) - Your Partner in Career Growth.
